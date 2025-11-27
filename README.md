@@ -1,4 +1,4 @@
-# [Kazleen June B. Caballerp](https://github.com/kazleenjunecaballero/kazleenjunecaballero)
+# [Kazleen June B. Caballero](https://github.com/kazleenjunecaballero/kazleenjunecaballero)
 
 #🎓 Education:
 - New Era University
